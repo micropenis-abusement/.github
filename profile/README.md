@@ -1,4 +1,1 @@
-## AAAAAAAAAAAAAAA
-
-
-## WE DO FUNNY TO FUNNY SITE
+## dort was here.
